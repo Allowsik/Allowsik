@@ -1,0 +1,3 @@
+- 👋 Hi, I'm @Allowsik!
+- 👀 I'm not a programmer.
+- 📫 You can reach me on discord: Allowsik#8019
